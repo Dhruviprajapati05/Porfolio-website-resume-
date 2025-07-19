@@ -17,5 +17,5 @@ Coming soon – will be hosted on GitHub Pages.
 
 ##  Contact
 Email: dhruvi.prajapati915@gmail.com  
-GitHub: https://github.com/YOUR_USERNAME  
+GitHub: https://github.com/dhruvi-prajapati05  
 LinkedIn: https://linkedin.com/in/dhruvi-prajapati-640094257
